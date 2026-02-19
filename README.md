@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Freelancing Works**
 
-- 📫 How to reach me **arnabsural1890@gmail.com**
+- 📫 How to reach me **arnabsural1890@gmail.com **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
